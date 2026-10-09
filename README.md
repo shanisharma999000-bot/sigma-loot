@@ -1,0 +1,2 @@
+# sigma-loot
+join telegram 
